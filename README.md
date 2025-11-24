@@ -1,2 +1,4 @@
+By proceeding, you acknowledge that the materials within this vault are proprietary intellectual property of Spencer Southern / Southern Star Pro. Studios LLC (SSPS™), protected under trade secret, copyright, and sovereign IP law. Accessing this vault constitutes your agreement to a binding NDA and licensing restriction. You agree not to copy, disclose, reverse-engineer, or distribute any portion of the contents. This gateway is monitored and time-stamped under Right Hand Protocol™. Violation triggers immediate enforcement.
+
 # Forensic-Proof-of-First-to-Market-Launch-Mint-to-Logic-
 Screenshot from Wix dashboard confirms Mint-to Logic™ public website was live on April 23, 2025—preceding all mirrored releases. Displays clear licensing notice, NDA declaration, and IP timeline citing December 2024 provisional patent.
